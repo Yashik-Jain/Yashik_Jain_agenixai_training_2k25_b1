@@ -1,0 +1,2 @@
+# Yashik_Jain_agenixai_training_2k25_b1
+TRAINING ASSIGNMENT 1
